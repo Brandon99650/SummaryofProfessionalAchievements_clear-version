@@ -1,0 +1,2 @@
+# SummaryofProfessionalAchievements_clear-version
+研究所申請資料中的專業成果匯總PDF，由於上傳資料大小5MB限制，因此不得不壓縮導致部分清晰度降低，這邊為清晰版
